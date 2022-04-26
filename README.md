@@ -1,6 +1,6 @@
 ![](https://64.media.tumblr.com/87c33f691dc9afdf476f1404c686c94a/e212cf1edf1171dc-63/s540x810/727b7eee71c97b5a71342ac6403e1266ef0e6da3.gif)
 ---
-standoff spectacle. glam rock dandy. submas haijin since 2012. learning js in my spare time
+standoff spectacle. glam rock dandy. old ass submas fan. learning web design in my free time
 
 **here from ponytown? read this before interacting with me:**
 - dont cover me, i try my best with my skins and i dont like seeing my work dismissed
