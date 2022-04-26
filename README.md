@@ -7,7 +7,7 @@ standoff spectacle. glam rock dandy. submas haijin since 2012. learning js in my
 - dont spam boop me or crowd me if im doing calls for games/rps
 - ill probably hide you if you make weird sexual jokes/comments in public
 - your ahegao face and stripper skins arent funny nor are they hot
-- mcyt fans please dont interact with me thanks <3
+- mcyt fans and fnf/fnf mod fans please dont interact with me thanks <3
 - im not proship/anti-anti, dni if you are, blankshippers fuck off especially
 ---
 ![](https://64.media.tumblr.com/17337dc7899b7bc46457879f624500c4/594ce223db35d5ee-1e/s500x750/fe846f54b3ca893b221c235a3d700d682670ce75.gif)
