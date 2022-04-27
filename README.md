@@ -4,10 +4,19 @@ standoff spectacle. glam rock dandy. old ass submas fan. learning web design in 
 
 **here from ponytown? read this before interacting with me:**
 - **dont cover me**, i try my best with my skins and i dont like seeing my work dismissed
-- i make racy jokes with my friends, use the ignore function if this bothers you!
+- i make racy and potentially discomforting jokes with my friends, use the ignore function if this bothers you!
 - i hide a lot but will usually only do it if i dont wanna interact with you or if youre racist, anti-semitic, homophobic &c
 - your ahegao face and stripper skins arent funny nor are they hot
 - mcyt fans and fnf/fnf mod fans please dont interact with me thanks <3
 - im not proship/anti-anti, dni if you are, blankshippers fuck off especially
+
+interact if you like any of these:
+- KING GIZZARD AND THE LIZARD WIZARD PLEASE TALK TO ME ABOUT THEM AND THEIR SIDE PROJECTS (murlocs, pipe-eye, bullant &c)
+- other psych rock artists like mgmt, temples, tame impala, and pond
+- no more heroes
+- jojos bizarre adventure
+- pokemon (submas especially)
+- cookie run ovenbreak
+- lost media and obscure content
 ---
 ![](https://64.media.tumblr.com/17337dc7899b7bc46457879f624500c4/594ce223db35d5ee-1e/s500x750/fe846f54b3ca893b221c235a3d700d682670ce75.gif)
