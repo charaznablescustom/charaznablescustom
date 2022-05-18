@@ -8,6 +8,7 @@ standoff spectacle. glam rock dandy. old ass submas fan. learning web design in 
 - i hide a lot but will usually only do it if i dont wanna interact with you or if youre racist, anti-semitic, homophobic &c
 - your ahegao face and stripper skins arent funny nor are they hot
 - mcyt fans and fnf/fnf mod fans please dont interact with me thanks <3
+- beatles skins dni unless i interact first. yes i am being serious
 - im not proship/anti-anti, dni if you are, blankshippers fuck off especially
 
 interact if you like any of these:
