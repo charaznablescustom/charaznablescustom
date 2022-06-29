@@ -5,7 +5,7 @@ standoff spectacle. glam rock dandy. old ass submas fan. learning web design in 
 **here from ponytown? read this before interacting with me:**
 - **i only allow [one person](https://github.com/themurlocs) to copy my skins**. any skin that resembles mine but does not have either of our githubs linked is stolen.
 - **dont cover me**, i try my best with my skins and i dont like seeing my work dismissed
-- i make racy and potentially discomforting jokes with my friends, use the ignore function if this bothers you!
+- i make potentially triggering jokes with my friends, use the ignore function if this bothers you! we try to keep most of this in whispers though
 - i hide a lot but will usually only do it if i dont wanna interact with you or if youre racist, anti-semitic, homophobic &c
 - your ahegao face and stripper skins arent funny nor are they hot
 - mcyt fans and fnf/fnf mod fans please dont interact with me thanks <3
