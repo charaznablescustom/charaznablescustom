@@ -1,6 +1,6 @@
 ![](https://64.media.tumblr.com/87c33f691dc9afdf476f1404c686c94a/e212cf1edf1171dc-63/s540x810/727b7eee71c97b5a71342ac6403e1266ef0e6da3.gif)
 ---
-learning web design and js
+learning web design and js. [last.fm profile](https://www.last.fm/user/Faulkners_Blunt)
 
 **here from ponytown? read this before interacting with me:**
 - **i only allow [one person](https://github.com/themurlocs) to copy my skins**. any skin that resembles mine but does not have either of our githubs linked is stolen.
