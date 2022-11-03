@@ -3,22 +3,21 @@
 learning web design and js. [last.fm profile](https://www.last.fm/user/Faulkners_Blunt)
 
 **here from ponytown? read this before interacting with me:**
-- **i only allow [one person](https://github.com/themurlocs) to copy my skins**. any skin that resembles mine but does not have either of our githubs linked is stolen.
-- **dont cover me**, i try my best with my skins and i dont like seeing my work dismissed
 - i make potentially triggering jokes with my friends, use the ignore function if this bothers you! we try to keep most of this in whispers though
-- i hide a lot but will usually only do it if i dont wanna interact with you or if youre racist, anti-semitic, homophobic &c
-- your ahegao face and stripper skins arent funny nor are they hot
+- i hide a lot but will usually only do it if i dont wanna interact with you or if youre racist, antisemitic, homophobic &c
 - mcyt fans and fnf/fnf mod fans please dont interact with me thanks <3
 - proship/anti-anti fuck off
 
 interact if you like any of these:
 - KING GIZZARD AND THE LIZARD WIZARD PLEASE TALK TO ME ABOUT THEM AND THEIR SIDE PROJECTS (murlocs, pipe-eye, bullant &c)
+- WEEN!!!!! Shinola Vol. 2 is never coming out.
+- PHANTOM OF THE PARADISE IM SO ILL ABOUT THAT MOVIE
 - other psych rock artists like mgmt, temples, tame impala, and pond
 - haunted mound
 - no more heroes
 - jojos bizarre adventure
 - pokemon
 - houseki no kuni
-- lost media and obscure content
+- lost media and general obscure content
 ---
 ![](https://64.media.tumblr.com/17337dc7899b7bc46457879f624500c4/594ce223db35d5ee-1e/s500x750/fe846f54b3ca893b221c235a3d700d682670ce75.gif)
