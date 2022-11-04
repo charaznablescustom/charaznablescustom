@@ -1,6 +1,6 @@
 ![](https://64.media.tumblr.com/87c33f691dc9afdf476f1404c686c94a/e212cf1edf1171dc-63/s540x810/727b7eee71c97b5a71342ac6403e1266ef0e6da3.gif)
 ---
-learning web design and js. [last.fm profile](https://www.last.fm/user/Faulkners_Blunt)
+learning web design and js. hi
 
 **here from ponytown? read this before interacting with me:**
 - i make potentially triggering jokes with my friends, use the ignore function if this bothers you! we try to keep most of this in whispers though
