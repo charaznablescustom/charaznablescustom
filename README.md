@@ -1,4 +1,5 @@
-![](https://64.media.tumblr.com/87c33f691dc9afdf476f1404c686c94a/e212cf1edf1171dc-63/s540x810/727b7eee71c97b5a71342ac6403e1266ef0e6da3.gif)
+![](https://64.media.tumblr.com/adffd59c3e2c5a9069cac93fdc85720c/66ef633a4ce3958d-ad/s400x600/45f6bfa44b96e21d14a7ac7f1695c70a2f32fd36.gif)
+
 ---
 this is just for ponytown. I dont know what a "java script" is buddy ...
 
