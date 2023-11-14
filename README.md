@@ -3,8 +3,10 @@
 this is just for ponytown. I dont know what a "java script" is buddy ...
 
 **byi:**
+- i join safe server for like 20 minutes tops sometimes. i primarily play on 18+. if youre on safe server and this bothers you, USE THE IGNORE BUTTON!! its that simple
+- i dont like interacting w minors so i will not accept random friend requests, nor speak to you (outside of thanking for compliments or answering simple questions), if you are a minor
 - i make potentially triggering jokes with my friends, use the ignore function if this bothers you! we try to keep most of this in whispers though
-- i hide freely. you or your buddies can ask why i hid you, but dont be surprised if i dont unhide
+- i hide freely. i wont unhide you Lol
 - i read stupid whispers i get out loud
 - proship/anti-anti fuck off
 
@@ -12,7 +14,7 @@ interact if you like any of these:
 - KING GIZZARD AND THE LIZARD WIZARD PLEASE TALK TO ME ABOUT THEM AND THEIR SIDE PROJECTS (murlocs, pipe-eye, bullant &c)
 - WEEN!!!!! Shinola Vol. 2 is never coming out.
 - PHANTOM OF THE PARADISE IM SO ILL ABOUT THAT MOVIE
-- MOBILE SUIT GUNDAM (mainly uc timeline) I FUCKING LOVE CHAR!!!!!!
+- MOBILE SUIT GUNDAM (mainly uc timeline)!!! I LOVE CHAR!!!!!!
 - other psych rock artists like mgmt, temples, tame impala, and pond
 - haunted mound
 - no more heroes
