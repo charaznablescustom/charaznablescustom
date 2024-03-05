@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/adffd59c3e2c5a9069cac93fdc85720c/66ef633a4ce3958d-ad/s400x600/45f6bfa44b96e21d14a7ac7f1695c70a2f32fd36.gif)
+![](https://64.media.tumblr.com/445c3d7e146bcc3fbfa6235e7c6672eb/1c5376ad262021a6-4e/s400x600/b9749c79f087c08165e30962041f8da050904390.gif)
 
 ---
 this is just for ponytown. I dont know what a "java script" is buddy ...
@@ -12,14 +12,10 @@ this is just for ponytown. I dont know what a "java script" is buddy ...
 - proship/anti-anti fuck off
 
 interact if you like any of these:
-- KING GIZZARD AND THE LIZARD WIZARD PLEASE TALK TO ME ABOUT THEM AND THEIR SIDE PROJECTS (murlocs, pipe-eye, bullant &c)
-- WEEN!!!!! Shinola Vol. 2 is never coming out.
-- PHANTOM OF THE PARADISE IM SO ILL ABOUT THAT MOVIE
-- MOBILE SUIT GUNDAM (mainly uc timeline)!!! I LOVE CHAR!!!!!!
-- other psych rock artists like mgmt, temples, tame impala, and pond
-- haunted mound
+- king gizzard and the lizard wizard, ween, the beach boys, mgmt, kekht arakh, sematary, or similar artists... no i will not be dropping my last.fm
+- phantom of the paradise
+- mobile suit gundam (primarily uc)
 - no more heroes
 - jojos bizarre adventure
-- lost media and general obscure content
 ---
-![](https://64.media.tumblr.com/17337dc7899b7bc46457879f624500c4/594ce223db35d5ee-1e/s500x750/fe846f54b3ca893b221c235a3d700d682670ce75.gif)
+![](https://64.media.tumblr.com/0d5a6a921bc81390696a23d13040d519/8d3e5c42a6ae0003-0b/s540x810/d75f6a9ccac6fcc8f728b5fb04f44a842b1d3de9.gif)
