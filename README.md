@@ -18,4 +18,4 @@ interact if you like any of these:
 - no more heroes
 - jojos bizarre adventure
 ---
-![](https://64.media.tumblr.com/0d5a6a921bc81390696a23d13040d519/8d3e5c42a6ae0003-0b/s540x810/d75f6a9ccac6fcc8f728b5fb04f44a842b1d3de9.gif)
+![](https://64.media.tumblr.com/d378252148393d8deb0a19096521dd3d/37902c44d8494772-06/s400x600/fa7d64d0cca4d73759cbb2ecc19b082247c81d52.gif)
