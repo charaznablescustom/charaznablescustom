@@ -1,6 +1,8 @@
 ![](https://64.media.tumblr.com/445c3d7e146bcc3fbfa6235e7c6672eb/1c5376ad262021a6-4e/s400x600/b9749c79f087c08165e30962041f8da050904390.gif)
 
 ---
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=circuitsoftime&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
 this is just for ponytown. I dont know what a "java script" is buddy ...
 
 **byi:**
@@ -17,5 +19,3 @@ interact if you like any of these:
 - horror manga (give me recs)
 ---
 ![](https://64.media.tumblr.com/d378252148393d8deb0a19096521dd3d/37902c44d8494772-06/s400x600/fa7d64d0cca4d73759cbb2ecc19b082247c81d52.gif)
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=circuitsoftime&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
